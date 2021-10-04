@@ -1,3 +1,4 @@
+# WHY IQ TRASH
 lol
 
 yes iq trash
